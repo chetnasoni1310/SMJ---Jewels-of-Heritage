@@ -1,1 +1,0 @@
-# SMJ---Jewels-of-Heritage
